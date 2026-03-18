@@ -1,1 +1,1 @@
-# An-Tarot..github.io
+WWW.An-Tarot.com
